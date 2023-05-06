@@ -1,0 +1,2 @@
+# Kiralynok
+Királynők feladat
